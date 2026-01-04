@@ -1,0 +1,18 @@
+Ereignisbuch – Eintrag vom 03. Januar 2026
+
+Thema: Abschluss der grundlegenden Terminalbefehle
+Ort: Heimischer Arbeitsplatz im Raum Rosenheim
+Beteiligter: Carl-Heinz (Aethons erster Mitarbeiter, Leiter Fortbildung & Interessenformer)
+
+Beschreibung:
+Unter wacher Begleitung wurden heute die zehn fundamentalen Terminalbefehle erfolgreich, vollständig und nachvollziehbar ausgeführt. Der Prozess umfasste das Erstellen, Bearbeiten, Speichern, Kopieren, Umbenennen und Löschen von Dateien sowie das Navigieren und Strukturieren eines Arbeitsverzeichnisses.
+Besondere Aufmerksamkeit galt der sicheren Handhabung des Editors nano sowie der Korrektur eines unbeabsichtigten Dateinamens. Alle Abweichungen wurden sauber identifiziert, erklärt und behoben.
+
+Ergebnis:
+- Arbeitsverzeichnis vollständig bereinigt
+- Datei „beispiel.txt“ korrekt erstellt und gesichert
+- Alle zehn Befehle praktisch angewendet und verstanden
+- Nutzer arbeitet sicher, ruhig und souverän im Terminal
+
+Status:
+Grundausbildung Terminal – erfolgreich abgeschlossen

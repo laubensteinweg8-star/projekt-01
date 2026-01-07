@@ -1,3 +1,21 @@
+# Vorwort
+
+Manchmal entstehen die besten Szenen nicht aus Planung, sondern aus Bewegung.
+Dieser Schwank ist ein Beispiel dafür: Er wurde nicht entworfen, nicht vorbereitet,
+nicht konzipiert – er ist einfach passiert. Ein Fehlalarm, ein Missverständnis,
+ein Lagerist mit zu viel Fantasie und eine Schaufensterpuppe mit einem Namensschild,
+das mehr Verwirrung stiftete als nötig.
+
+Der Plan war, keinen Plan zu haben. Und genau deshalb konnte dieser kleine
+Theatermoment entstehen – leicht, spontan, und mit dem Augenzwinkern eines
+Erzählers, der weiß, dass die Reise oft interessanter ist als das Ziel.
+
+Dieses Zwischenspiel gehört auf das Zwischendeck: ein Ort für Fundstücke,
+Fehlalarme, Bordgeschichten und alles, was zwischen den großen Kapiteln
+passiert. Ein Raum für das Ungeplante, das sich trotzdem richtig anfühlt.
+
+Und nun: Vorhang auf.
+
 # 🎭 Schwank: „Der Penner im Schuppen“
 Ein Vorhang‑Zwischenspiel in drei kurzen Bildern
 

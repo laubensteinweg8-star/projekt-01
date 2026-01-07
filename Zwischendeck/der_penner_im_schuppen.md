@@ -1,3 +1,49 @@
+# Inszenierungsanweisung: Orchester als Teil der Szene
+
+Das Orchester beginnt den Abend in scheinbar klassischer Haltung:
+ernst, konzentriert, beinahe überkorrekt – so, als würde ein
+Krematoriums-Konzert aufgeführt. Die Musiker sitzen still, die
+Instrumente perfekt ausgerichtet, kein Lächeln, kein Augenzwinkern.
+
+Doch bereits zu Beginn fällt ein Detail auf:
+Der Klarinettist mit der Leberkässemmel.
+
+Er sitzt da, kaut, stimmt sein Instrument zwischen zwei Bissen,
+und tut so, als wäre das völlig normal. Das Publikum ist unsicher:
+Ist das Absicht? Ist das erlaubt? Ist das schon Teil des Stücks?
+
+Während die Handlung beginnt, bleibt das Orchester zunächst streng.
+Die Einsätze sind präzise, fast zu präzise. Die Musik wirkt
+überernst, als wolle sie das Stück „zu wichtig“ machen.
+
+Nach und nach jedoch bricht die Fassade.
+
+Der Klarinettist steht auf, geht durch die Reihen des Publikums,
+kaut weiter, spielt zwischendurch ein paar Töne, die nicht ganz
+passen – aber genau deshalb passen sie. Er sorgt für leichtes
+Chaos, stolpert fast über eine Handtasche, entschuldigt sich
+flüsternd, spielt weiter.
+
+Das Publikum lacht. Die Szene kippt.
+
+Der Erzähler tritt an den Bühnenrand, sieht den Musiker kommen
+und begrüßt ihn trocken:
+
+„Schön, dass es doch noch geklappt hat.“
+
+Ab diesem Moment ist klar:
+Das Orchester ist nicht Begleitung.
+Es ist Teil der Inszenierung.
+
+Die Musiker dürfen reagieren, kommentieren, improvisieren.
+Ein falscher Ton wird zum Gag.
+Ein zu früher Einsatz wird zur Pointe.
+Ein verspäteter Musiker wird zur Figur.
+
+Das Orchester spielt nicht unter dem Stück –
+es spielt *mit* dem Stück.
+
+
 # Vorwort
 
 Manchmal entstehen die besten Szenen nicht aus Planung, sondern aus Bewegung.

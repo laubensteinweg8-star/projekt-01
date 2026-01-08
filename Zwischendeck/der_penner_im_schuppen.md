@@ -145,3 +145,65 @@ schreibt ins Logbuch
 
 ## Vorhang zu.
 
+Der Vorhang hebt sich nur einen Spalt.  
+Ein einzelner Lichtkegel fällt auf den Erzähler, der nun nicht mehr lächelt,
+sondern die Haltung eines Mannes annimmt, der etwas Wichtiges mitzuteilen hat.
+
+Er tritt einen Schritt vor, die Hände auf dem Rücken verschränkt,
+und spricht mit der ruhigen, warmen, leicht rauen Stimme eines
+Vortragenden aus einer anderen Zeit:
+
+„Meine Damen und Herren…  
+verehrtes Publikum…  
+was Sie soeben gesehen haben, war der erste Teil eines Abends,
+der sich nicht an Regeln hält.
+
+Sie haben gelacht.  
+Sie haben gezögert.  
+Sie haben sich gefragt, ob das schon alles war.
+
+Doch nun…  
+nun beginnt der zweite Akt.“
+
+Er macht eine Pause.  
+Eine echte Pause.  
+Eine, die man hören kann.
+
+„Ein Akt, der nicht gespielt wird,  
+sondern passiert.
+
+Ein Akt, der nicht beginnt,  
+sondern hereinbricht.
+
+Ein Akt, der nicht angekündigt wird…  
+sondern sich selbst ankündigt.“
+
+In diesem Moment erklingt die Klarinette –  
+diesmal nicht schräg, nicht verspielt,  
+sondern mit einer tiefen, dunklen, fast poetischen Melodie.
+
+Der Erzähler dreht sich leicht zur Seite, als würde er Platz machen.
+
+„Und damit…  
+übergebe ich an den Mann,  
+der nicht im Programmheft steht.“
+
+Aus dem Publikum erhebt sich der Kommissar.
+
+Er geht langsam nach vorne,  
+tritt auf die Bühne,  
+blickt ins Licht  
+und sagt mit ruhiger, fester Stimme:
+
+„Halt.  
+Hier stimmt etwas nicht.  
+Polizei.  
+Niemand verlässt seinen Platz.“
+
+Stille.
+
+Der Erzähler nickt nur.
+
+„Der zweite Akt hat begonnen.“
+
+

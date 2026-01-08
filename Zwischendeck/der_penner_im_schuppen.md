@@ -206,4 +206,111 @@ Der Erzähler nickt nur.
 
 „Der zweite Akt hat begonnen.“
 
+# Szene: Die große Rekonstruktion – „Der Hochstand der Schande“
+
+Die Bühne ist leicht abgedunkelt.  
+Ein Spot beleuchtet den Kommissar, der mit wichtiger Miene vor einem Flipchart steht.  
+Der Navigator lehnt daneben, die Arme verschränkt.
+
+Karle und Maxi stehen wie zwei Schulbuben nebeneinander.  
+Die Kantinenchefin lehnt am Wischmopp und beobachtet alles mit Genuss.
+
+Kommissar (wichtig):
+„Meine Damen und Herren… ich werde nun den Tathergang rekonstruieren.“
+
+Navigator (ins Publikum, trocken):
+„Aye… jetzt wird’s wissenschaftlich.“
+
+Der Kommissar blättert um.  
+Auf dem Flipchart ist eine unverständliche Zeichnung:  
+ein Rechteck, ein Kreis, ein Strich und etwas, das wie ein betrunkener Vogel aussieht.
+
+Kommissar:
+„Dies, meine Damen und Herren, ist der Hochstand.“
+
+Kantinenchefin (trocken):
+„Des is a Bierkist’n.“
+
+Der Kommissar ignoriert sie.
+
+Kommissar:
+„Hier oben standen die beiden Sicherheitskräfte.“
+
+Er zeigt auf zwei Striche.
+
+Karle (flüstert):
+„Des bin i.“
+
+Maxi:
+„Na, des bin i.“
+
+Navigator:
+„Aye… zwei Striche, null Hirn.“
+
+Kommissar:
+„Hier hängt der Luftballon.“
+
+Er zeigt auf einen Kreis.
+
+Kantinenchefin:
+„Des is a Kartoffel.“
+
+Kommissar (genervt):
+„Es ist ein Symbol!“
+
+Navigator:
+„Aye… für was, weiß keiner.“
+
+Kommissar (dramatisch):
+„Und hier… die geladene Armbrust.“
+
+Er zeigt auf etwas, das wie ein krummer Besen aussieht.
+
+Karle (stolz):
+„Die ham ma g’laden.“
+
+Maxi nickt:
+„Weil sonst geht’s ja ned.“
+
+Kommissar:
+„Dann kam der Alarm.“
+
+Er macht eine Sirenenbewegung mit der Hand.
+
+Navigator:
+„Aye… Alarmstufe Leberkäs.“
+
+Die Kantinenchefin hebt ihre Semmel wie ein Beweisstück.
+
+Kommissar:
+„Die beiden Männer verließen den Hochstand… und ließen die geladene Armbrust zurück.“
+
+Karle (schuldig):
+„Wir ham’s eilig g’habt.“
+
+Maxi:
+„Weil’s in der Kantine warm is.“
+
+Kommissar (dramatisch):
+„Und dann… fiel die Armbrust um.“
+
+Er kippt das Flipchart um.  
+Es kracht laut.
+
+Navigator:
+„Aye… realistische Darstellung.“
+
+Kommissar:
+„Der Pfeil löste sich… flog durch das Schuppenfenster… und traf die Puppe BLAME.“
+
+Die Kantinenchefin:
+„Der hat hier eh nix verloren.“
+
+Kommissar (stolz):
+„Damit ist der Fall gelöst!“
+
+Stille.
+
+Navigator tritt vor, schaut ins Publikum, hebt eine Augenbraue
+
 

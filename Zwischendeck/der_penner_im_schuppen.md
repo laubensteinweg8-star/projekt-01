@@ -312,5 +312,5 @@ Kommissar (stolz):
 Stille.
 
 Navigator tritt vor, schaut ins Publikum, hebt eine Augenbraue
-
+„Aye… gelöst is da gar nix.“
 
